@@ -2,7 +2,7 @@
 
 # I'm **Abdun Nafay Rathore**.
 
-**16 | Passionate Learner**
+**A Passionate Learner.**
 
 - Strengthening Skills
 - Building Soon...
