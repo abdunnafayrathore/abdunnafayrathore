@@ -1,6 +1,6 @@
 ### Hello, World! 👋
 
-# I'm **Abdun Nafay Rathore**.
+# I'm Abdun Nafay Rathore.
 
 **A Passionate Learner.**
 
